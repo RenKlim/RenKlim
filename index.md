@@ -4,6 +4,8 @@ _Tuesday 9th August 2022_
 
 ---
 
+![](images/IMG_1013.JPG)
+
 I completely understand and appreciate that not everyone is in a position to donate at the moment (cue rant about COVID, cost of living, etc etc), but I have a **three part request** that I would appreciate people doing the parts which they are able. I'm also including the story behind this below, however I would like to warn you that some readers may find this distressing and I will understand if you don't read further than my 3 requests.
 
 ## Three Requests
@@ -18,7 +20,9 @@ I completely understand and appreciate that not everyone is in a position to don
 
 ## Why?
 
-Many of you will be aware that I shaved my head in 2014 for Cancer Research. As soon as I mentioned that I was planning to do this, Naomi jumped in and asked if she could shave her head with me. And so began the big plan. We waited until we both had hair long enough to donate to [The Little Princess Trust](https://www.littleprincesses.org.uk) who make and provide wigs for children who lost their hair due to cancer and other illnesses. I chose to raise funds for Cancer Research and Naomi, having recently visited Uganda, choose to collect donations for Source of Light, who I am raising money for this time around.
+Many of you will be aware that I shaved my head in 2014 for Cancer Research. As soon as I mentioned that I was planning to do this, Naomi jumped in and asked if she could shave her head with me. And so began the big plan. We waited until we both had hair long enough to donate to [The Little Princess Trust](https://www.littleprincesses.org.uk) who make and provide wigs for children who lost their hair due to cancer and other illnesses. In addition to donating the hair, I chose to raise funds for Cancer Research and Naomi, having recently visited Uganda, chose to collect donations for Source of Light, who I am raising money for this time around.
+
+![](images/IMG_1030.JPG)
 
 [Source of Light](https://www.allourchildren.co.uk/post/the-source-of-light-nursery-and-primary-school-mubende-uganda) was set up with Naomi's founding donations. Since helping start the school, Naomi continued to fundraise with numerous events, raising tens of thousands of pounds, which went towards various necessities, primarily buildings.
 
