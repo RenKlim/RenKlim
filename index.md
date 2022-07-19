@@ -26,7 +26,7 @@ Many of you will be aware that I shaved my head in 2014 for Cancer Research. As 
 
 [Source of Light](https://www.allourchildren.co.uk/post/the-source-of-light-nursery-and-primary-school-mubende-uganda) was set up with Naomi's founding donations. Since helping start the school, Naomi continued to fundraise with numerous events, raising tens of thousands of pounds, which went towards various necessities, primarily buildings.
 
-Naomi was always a giver, and felt the world's problems as her own. In September 2021 Naomi killed herself, having struggled with her mental health over a long period. She was 28 and had only recently started to get medical help. In death she continued to help others, as several of her organs were successfully donated.
+Naomi was always a giver, and felt the world's problems as her own. In September 2021 Naomi hanged herself in a beautiful garden with seven of her close family nearby. She was almost 29 and had only recently started to get medical help for her ongoing mental health concerns. In death she continued to help others and gave life to three young people through the successful donation of her two kidneys and her liver.
 
 Almost a year later, I still cannot quite believe that I will never see Naomi again, even though we had not been in contact for some time before her death. I wish I could tell her what her friendship means to me, despite this, and hope that some of you are encouraged by this to reach out to those you haven't heard from in a while and check in with them.
 
