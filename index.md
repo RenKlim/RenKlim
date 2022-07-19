@@ -10,7 +10,7 @@ I completely understand and appreciate that not everyone is in a position to don
 
 ## Three Requests
 
-1) Make a donation! I'm raising money for the Source of Light Nursery and Primary School in Uganda via the charity All Our Children ([donate here](https://www.muchloved.com/Donate/DonationAmount?id=229c7856-9949-4953-9d4b-8654a97610b3))
+1) Make a donation! I'm raising money for the Source of Light Nursery and Primary School in Uganda via the charity All Our Children ([donate here](https://naomihaigh.muchloved.com/Fundraising))
 
 2) Reconnect with a friend you haven't spoken to in a while and find out how they're doing. Share some memories with them, and see if you can make some new ones.
 
@@ -30,7 +30,7 @@ Naomi was always a giver, and felt the world's problems as her own. In September
 
 Almost a year later, I still cannot quite believe that I will never see Naomi again, even though we had not been in contact for some time before her death. I wish I could tell her what her friendship means to me, despite this, and hope that some of you are encouraged by this to reach out to those you haven't heard from in a while and check in with them.
 
-If you are in a position to donate, please do so via [Naomi's memorial page](https://www.muchloved.com/Donate/DonationAmount?id=229c7856-9949-4953-9d4b-8654a97610b3) - any donations made will continue the good work that she started. Please be aware that I do not have control over this website - notifications will go to Naomi's family. Regardless of whether or not I manage to thank you personally, I am grateful for anything that you are able to spare to this cause!
+If you are in a position to donate, please do so via [Naomi's memorial page](https://naomihaigh.muchloved.com/Fundraising) - any donations made will continue the good work that she started. Please be aware that I do not have control over this website - notifications will go to Naomi's family. Regardless of whether or not I manage to thank you personally, I am grateful for anything that you are able to spare to this cause!
 
 [naomihaigh.muchloved.com/Fundraising](https://naomihaigh.muchloved.com/Fundraising)
 
